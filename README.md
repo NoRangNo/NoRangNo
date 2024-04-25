@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @AramLEE
+- 👋 Hi, I’m @NoRangNo
 - 👀 I’m interested in Economics, Public Administration.
 - 🌱 I’m currently learning how to write paperSSSSS
 - 📫 Please contact me: ramm9210@gmail.com
